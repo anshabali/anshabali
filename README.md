@@ -1,5 +1,5 @@
 # 💫 About Me:
-iam student also working <br>
+iam student 😎🔥 <br>
 
 
 ## 🌐 Socials:
